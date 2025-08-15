@@ -1,2 +1,0 @@
-# CHARITY-RUN-1
-.
